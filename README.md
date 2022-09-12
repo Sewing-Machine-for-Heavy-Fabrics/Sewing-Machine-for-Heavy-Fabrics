@@ -35,7 +35,6 @@ The lightest fabrics require less pressure, but heavy fabrics feel like they wei
 Link: https://teamsewing.com/best-sewing-machine-for-heavy-fabrics/
 
 Resources:
-
 https://www.artnews.com/art-news/product-recommendations/best-heavy-duty-sewing-machines-1202696483/
 https://www.nytimes.com/wirecutter/reviews/best-sewing-machine/
 https://www.artnews.com/art-news/product-recommendations/best-heavy-duty-sewing-machines-1202696483/
