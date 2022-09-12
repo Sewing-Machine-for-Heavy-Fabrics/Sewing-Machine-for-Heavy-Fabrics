@@ -1,6 +1,5 @@
 Sewing-Machine-for-Heavy-Fabrics
 
-Best Sewing Machine for Heavy Fabrics
 
 The lightest fabrics require less pressure, but heavy fabrics feel like they weigh down your clothes. You also end up buying more fabric because you need more Machine to Measure, or MTM, machines to make all the seams equal. Pretend you’re a stockbroker and need to buy the perfect garment label for your company car. The last thing you want is to have an embroidered label that drapes over your shoulder and reads ‘This Is Me’. That would just be too…Oh So Heavy! Thankfully, there is an easy way around this problem with the right machine!
 
@@ -35,6 +34,7 @@ The lightest fabrics require less pressure, but heavy fabrics feel like they wei
 Link: https://teamsewing.com/best-sewing-machine-for-heavy-fabrics/
 
 Resources:
+
 https://www.artnews.com/art-news/product-recommendations/best-heavy-duty-sewing-machines-1202696483/
 https://www.nytimes.com/wirecutter/reviews/best-sewing-machine/
 https://www.artnews.com/art-news/product-recommendations/best-heavy-duty-sewing-machines-1202696483/
