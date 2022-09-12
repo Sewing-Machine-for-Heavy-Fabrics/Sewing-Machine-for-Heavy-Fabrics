@@ -32,6 +32,8 @@ The lightest fabrics require less pressure, but heavy fabrics feel like they wei
 Conclusion
 The lightest fabrics require less pressure, but heavy fabrics feel like they weight down your clothes. You also end up buying more fabric because you need more Machine to Measure, or MTM, machines to make all the seams equal. The Fabric Sorter is an easy-to-use machine that allows you to efficiently separate the lightest fabrics into sections. You then select the sections you would like to machine, and the machine automatically creates the side panels and back panels that you need. The EZ Sew Machine can Sew All, Seamless, and 11 Different Sizes. To use it, select a fabric and then select “Sewing”. The machine will automatically determine the best method for you, and suggest other options that could be better. The Bedroom MTM Machine can Sew 11 Different Sizes and is perfect for bedroom design. The Bedroom MTM Machine can Sew 11 Different Sizes and is perfect for bedroom design.
 
+Link: https://teamsewing.com/best-sewing-machine-for-heavy-fabrics/
+
 Resources:
 
 https://www.artnews.com/art-news/product-recommendations/best-heavy-duty-sewing-machines-1202696483/
